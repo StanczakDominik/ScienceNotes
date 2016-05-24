@@ -1,0 +1,2 @@
+> There is a single light of science, and to brighten it anywhere is to brighten it everywhere.
+- Isaac Asimov
